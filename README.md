@@ -1,1 +1,2 @@
-# realtors
+# Realtors
+Real estate development is a process that involves the purchase of raw land, rezoning, construction and renovation of buildings, and sale or lease of the finished product to end users. Developers earn a profit by adding value to the land (creating buildings or improvements, rezoning, etc. [Realtors](http://realatorappnow.com/) is defined as the land and any permanent structures, like a home, or improvements attached to the land, whether natural or man-made. Real estate is a form of real property.
